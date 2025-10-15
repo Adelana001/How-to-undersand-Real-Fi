@@ -14,6 +14,7 @@ https://medium.com/@adelanaadekola001/the-real-real-fi-guide-6babb1fcf63d
 
 
 
+Here is a X link also ! 
 
 
 
