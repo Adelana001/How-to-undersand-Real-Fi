@@ -14,8 +14,13 @@ https://medium.com/@adelanaadekola001/the-real-real-fi-guide-6babb1fcf63d
 
 
 
+
 Here is a X link also ! 
 https://x.com/adekola_adelana/status/1978363395079320008
+
+Here is the Link to the LinkedIn Post 
+
+https://www.linkedin.com/posts/adelana-adekola-2796b4206_the-realreal-fi-guide-activity-7384164375319982080-lds7?utm_source=share&utm_medium=member_desktop&rcm=ACoAADRtv30B8mtteAp4Ymie3wobnMX6RnGSZ2g
 
 
 
